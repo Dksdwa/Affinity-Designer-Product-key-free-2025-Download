@@ -1,0 +1,1 @@
+# Affinity-Designer-Product-key-free-2025-Download
